@@ -1,0 +1,5 @@
+- Sup Nerds
+- Intrests: Art and Tech
+- I made a country
+- Im here to help a friend
+- If you need to reach me, dont.
